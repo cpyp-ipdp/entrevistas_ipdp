@@ -12,7 +12,7 @@ Las personas entrevistadas fueron:
 - Gisela Irene Méndez
 - Martha Laura Peña Ordóñez
 - Gabriela Quiroga García
-- Patria Ramírez Kuri
+- Patricia Ramírez Kuri
 - Mónica Leonor Rivas Bazán
 - Vanessa Salazar Solís
 
